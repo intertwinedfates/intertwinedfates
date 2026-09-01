@@ -1,3 +1,3 @@
 ##  ᡣ𐭩 •｡ꪆৎ ˚⋅
 
-<img width="512" height="512" alt="image" src="https://github.com/user-attachments/assets/da494b5c-180a-4025-a368-6ca3a15c6896" />
+<img width="447" height="447" alt="image" src="https://github.com/user-attachments/assets/af4a948c-f0e2-4b82-8655-9d7798ffd47a" />
